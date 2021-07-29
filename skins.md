@@ -9,3 +9,6 @@
 
 # [slame64 v2](https://salame.s-ul.eu/EqOvAFFf)
 ![](https://i.imgur.com/63O4L6D.jpg)
+
+# [aristia(edit)](https://fumireko.s-ul.eu/BXxaQmP6)
+![](https://user-images.githubusercontent.com/86303757/127579292-f775c6c8-81d7-4776-bd0f-cb7560671de6.jpg)
