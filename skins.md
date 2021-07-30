@@ -11,4 +11,8 @@
 ![](https://i.imgur.com/63O4L6D.jpg)
 
 # [aristia(edit)](https://fumireko.s-ul.eu/BXxaQmP6)
-![](https://user-images.githubusercontent.com/86303757/127579292-f775c6c8-81d7-4776-bd0f-cb7560671de6.jpg)
+![](https://user-images.githubusercontent.com/86303757/127580607-9e8b444b-3bb2-4b9d-8f3a-a110d716a07d.jpg)
+
+# [azer8dusk](https://fluffyzin.s-ul.eu/UD3gMeFC)
+![](https://user-images.githubusercontent.com/86303757/127580716-a958b51a-7b46-4f9d-97c1-3474ce886370.jpg)
+
