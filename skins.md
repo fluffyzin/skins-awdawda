@@ -1,3 +1,5 @@
+# [kimika](https://osu.ppy.sh/u/16707049) & [fluffyzin]((https://osu.ppy.sh/u/9752994) - osu! skins
+
 # [ai q sono (kimika kskin)](https://salame.s-ul.eu/zzG8nqtU)
 ![](https://i.imgur.com/DQ0QoiK.jpeg)
 
