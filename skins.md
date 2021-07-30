@@ -1,5 +1,5 @@
 # some osu! skins
-[kimika's](https://osu.ppy.sh/u/16707049) & [fluffyzin's](https://osu.ppy.sh/u/9752994) 'archive' for skins that we use on the circle game
+[kimika](https://osu.ppy.sh/u/16707049) & [fluffyzin's](https://osu.ppy.sh/u/9752994) 'archive' for skins that we use on the circle game
 
 # [ai q sono (kimika kskin)](https://salame.s-ul.eu/zzG8nqtU)
 ![](https://i.imgur.com/DQ0QoiK.jpeg)
