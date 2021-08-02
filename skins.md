@@ -11,7 +11,7 @@
 ![](https://i.imgur.com/VEn10l5.jpg)
 
 # [slame64 v2](https://salame.s-ul.eu/WIcddMc0)
-![](https://i.imgur.com/63O4L6D.jpg)
+![](https://i.imgur.com/kHVOOxE.jpeg)
 
 # [aristia(edit)](https://fumireko.s-ul.eu/BXxaQmP6)
 ![](https://user-images.githubusercontent.com/86303757/127580607-9e8b444b-3bb2-4b9d-8f3a-a110d716a07d.jpg)
