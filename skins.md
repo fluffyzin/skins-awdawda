@@ -10,7 +10,7 @@
 # [super unique skin (salame64 v1)](https://salame.s-ul.eu/MGoZQkp2)
 ![](https://i.imgur.com/VEn10l5.jpg)
 
-# [slame64 v2](https://salame.s-ul.eu/EqOvAFFf)
+# [slame64 v2](https://salame.s-ul.eu/WIcddMc0)
 ![](https://i.imgur.com/63O4L6D.jpg)
 
 # [aristia(edit)](https://fumireko.s-ul.eu/BXxaQmP6)
