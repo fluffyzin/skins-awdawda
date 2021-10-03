@@ -19,3 +19,5 @@
 # [azer8dusk](https://fluffyzin.s-ul.eu/UD3gMeFC)
 ![](https://user-images.githubusercontent.com/86303757/127580716-a958b51a-7b46-4f9d-97c1-3474ce886370.jpg)
 
+# [kimika3 (yaong edit)](https://salame.s-ul.eu/0em6YSlY)
+![](https://user-images.githubusercontent.com/80842081/129247051-1622eaab-edda-4ccd-839b-35365cd80f8c.jpg)
