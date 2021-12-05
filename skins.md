@@ -21,3 +21,6 @@
 
 # [kimika3 (yaong edit)](https://salame.s-ul.eu/0em6YSlY)
 ![](https://user-images.githubusercontent.com/80842081/129247051-1622eaab-edda-4ccd-839b-35365cd80f8c.jpg)
+
+# [kimika OSU  rho edit (their main skin)) ](https://cdn.discordapp.com/attachments/902440505026179092/916892204889423902/kimika2021.osk)
+![](https://cdn.discordapp.com/attachments/902440505026179092/916893078495842375/screenshot757.jpg)
